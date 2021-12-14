@@ -5,6 +5,6 @@
 
 一起学习交流行业知识。
 
-qq群二维码：
 
-![自动驾驶交流学习群聊二维码](https://user-images.githubusercontent.com/96108374/145960833-30b5c123-4966-4617-8661-76b32f4654d1.png)
+![自动驾驶交流学习群聊二维码](https://user-images.githubusercontent.com/96108374/145964514-9a10d09e-1735-4387-a679-c43131c268d5.jpg)
+
